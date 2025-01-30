@@ -7,3 +7,7 @@
 
 - Góngora Tun Jaqueline
 - Villanueva Díaz Luisa Cristina
+
+![image](https://github.com/user-attachments/assets/57c40f68-e5e0-4de1-bf45-91267bc7f288)
+
+
